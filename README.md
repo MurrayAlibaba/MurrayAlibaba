@@ -1,4 +1,4 @@
-### Мда... ну и трэш
+### ну типа
 Я масим алибаба
 <!--
 **MurrayAlibaba/MurrayAlibaba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
